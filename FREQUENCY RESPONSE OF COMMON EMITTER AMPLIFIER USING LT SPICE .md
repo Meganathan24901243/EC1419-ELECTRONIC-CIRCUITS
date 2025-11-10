@@ -25,7 +25,8 @@
 
 ## Graph
 ![WhatsApp Image 2025-11-10 at 08 53 14_b776eaa3](https://github.com/user-attachments/assets/65b62b31-f510-4ff1-badf-000e08b58f2b)
-<img width="808" height="1454" alt="image" src="https://github.com/user-attachments/assets/e7288ad7-788e-4d16-a0d7-bf8b25b491d8" />
+![WhatsApp Image 2025-11-10 at 09 26 30_347f93e5](https://github.com/user-attachments/assets/1978c845-96c2-404f-9db2-ad21a123e606)
+
 
 
 ## **Result**
